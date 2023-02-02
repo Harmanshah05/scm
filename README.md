@@ -1,2 +1,4 @@
 # scm
-#we are fucked
+#we are from G7
+HARMAN AND HARSHDEEP
+
